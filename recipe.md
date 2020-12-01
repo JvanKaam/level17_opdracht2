@@ -1,3 +1,16 @@
+* 2 tbsp olive oil
+* 200 ml almond or rice milk
+* 2 tbsp almond butter
+* 2 tbsp maple syrup
+* a pinch of sea salt
+* 1 tsp ground cinnamon
+* ½ tsp vanilla extract
+* 1 tsp ground flax seeds
+* 6-8 slices of white or sourdough bread (stale bread works well too)
+* 18 tbsp water
+* 1 tsp oil
+* 4 bananas
+
 1. Put all the ingredients except the bread, oil and banana into a blender and whiz together until smooth.  
 Pour into a wide bowl with a flat bottom and soak the bread in this mixture, moving it around and turning, making sure that the bread really absorbs the liquid.
 
